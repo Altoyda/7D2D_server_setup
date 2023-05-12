@@ -1,1 +1,1 @@
-
+At some point of life you realize, that no existing 7 Days To Die server is good for you. Closed or unfriendly community, lags, lazy admins, cheaters walking free and ruining game for everyone. There are many reasons that can push you to decision of creating new one. Anyway, your own server to play with a friends sounds like a good idea, so let's begin!
